@@ -14,7 +14,7 @@
 - Me encanta aprender y enfrentarme a nuevos desafíos. La base de todo: Mantenerse en movimiento 🚀🚀  
   
 
-- ⚡Actualmente profundizando en las Skills que manejo y con interes en aprender TypeScript y Python.  
+
   
 
 <br/>  
